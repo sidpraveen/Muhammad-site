@@ -1,1 +1,1 @@
-# Muhammed-site
+# Muhammad-site
